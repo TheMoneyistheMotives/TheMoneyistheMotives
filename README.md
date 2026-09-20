@@ -1,5 +1,13 @@
-## Hi there 👋
+<div align="center"> 
 
+# <img width="872" height="283" alt=image src="https://i.postimg.cc/QCscg9TQ/photo-2026-09-20-15-40-32.jpg">
+  
+![](https://komarev.com/ghpvc/?username=TheMoneyistheMotives&color=grey&style=for-the-badge)
+
+[teletype](https://teletype.in/@procon6/99m8PkF3jcUiwiwiwwowwowouwuwuwuw)ㅤ⋚︎ㅤ[telegram](https://t.me/wwwwedffffcxa)ㅤ
+  
+
+</div>
 <!--
 **TheMoneyistheMotives/TheMoneyistheMotives** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
