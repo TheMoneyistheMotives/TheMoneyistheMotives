@@ -5,9 +5,8 @@
 ![](https://komarev.com/ghpvc/?username=TheMoneyistheMotives&color=grey&style=for-the-badge)
 
 [teletype](https://teletype.in/@procon6/99m8PkF3jcUiwiwiwwowwowouwuwuwuw)ㅤ⋚︎ㅤ[telegram](https://t.me/wwwwedffffcxa)ㅤ
-  
-
-</div>
+        
+Ты мне это мозги не это самое
 <!--
 **TheMoneyistheMotives/TheMoneyistheMotives** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
