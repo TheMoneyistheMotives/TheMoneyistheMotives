@@ -4,7 +4,7 @@
   
 ![](https://komarev.com/ghpvc/?username=TheMoneyistheMotives&color=grey&style=for-the-badge)
 
-потомㅤ⋚︎ㅤ[telegram](https://t.me/wwwwedffffcxa)ㅤ
+потомㅤ⋚︎ㅤ[telegram](https://t.me/m/HlTUl0ysNTli)ㅤ
         
 Ты мне это мозги не это самое
 <!--
